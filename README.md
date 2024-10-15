@@ -1,2 +1,2 @@
-# SupaGanga
-Instagram autoclaimer and swapper. Devolved by @tmwb on instagram.
+Copied from someone on this platform 
+#by discord @oh2i
